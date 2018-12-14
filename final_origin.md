@@ -105,14 +105,31 @@ Chiang Kaishek: Xi’an Incident
 Enlai in Chongqing
 
 ## “Rape of Nanjing,” 1937 (Week 10)
+• July 8, 1937: Marco Polo Bridge Incident
+• Japan quickly occupies
 
-
+December, 1937 Nanjing Massacre or
+“Rape of Nanjing” Nationalist forces
+retreat far inland to “Free China,” based
+in Chongqing
 
 ## Cairo Conference, 1943 (Week 10)
-
+1943: Cairo Conference, in which Allied forces, including
+Chiang Kai-shek, FDR, Churchill make agreement about
+what to do with Japanese territory after the war
 
 ## “Mass Line” governance in the early PRC (Week 10)
-
+“People’s democratic dictatorship”:
+peasants, workers, and army form of
+the cornerstone of revolution and new
+society
+• Intellectuals
+• Communist Party leads the masses
+though the “mass line” (qunzhong
+luxian 􀀅􀀁􀀆􀀄)
+• Mao Zedong 􀀁􀀂􀀁 and Standing
+Committee (Chairman LIU Shaoqi,
+General ZHU De, Premier ZHOU Enlai)
 
 ## Danweis and communes in 1950s PRC (Week 10)
 
