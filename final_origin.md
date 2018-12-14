@@ -1,22 +1,31 @@
 ## “Greater East Asia Co-Prosperity Sphere” (Week 9)
 • 1931-1937: Increasing militarization
+
 • Increasing popular devotion toward idea of divine
 emperor
+
 • Widespread social mobilization in the late 1930s for
 the sake of the war against China and expanding the
 empire
+
 • Pan-Asianism and “Greater East Asia Co-Prosperity
 Sphere” (1940): “Asia for the Asiatics”
 
 ## March First Movement in Korea (Week 9)
 • Major social reforms under Japanese rule: monarchy abolished,
+
 • Assimilation of yangban either by direct bribe or through economic alliance
+
 • Regulation of press, education, public assembly
+
 • Redistribution of land, awarding Japanese development companies
+
 • March 1st (1919) Independence Movement: peaceful protest against the
 harshness of Japanese colonial administration, brings about end to martial law
+
 • 1920s: “softer” colonialism, including rights to publicly assemble, publication of
 Korean-language newspapers, and improved education
+
 • Japanese investment in communications, electricity, and transportation
 infrastructures, manufacturing industries, banking
 
@@ -24,107 +33,203 @@ infrastructures, manufacturing industries, banking
 
 
 ## Kim Sa-ryang, “Into the Light” (Week 9)
+
 Imperialization (kōminka 􀀑􀀛􀀍) policies
+
 • Collaboration by Koreans
 •
+
 • “Into the Light” 􀀏􀀅􀀕􀀄 (1940)
+
 *What kinds of conflict does the narrator experience in his selfidentity?*
 
 *How might this story challenge or be subversive toward Japanese colonialism?*
 
 ## “Comfort women” (Week 9)
 System of “comfort stations” building on program launched in
+
 Shanghai in 1932
+
 • Koreans compose 80 percent of the “comfort women”
+
 • A broad program of sexual slavery whose history is still being
+
 reconstructed
+
+
 
 ## Imperial Japan’s integration (dōka) and imperialization (kōminka) policies (Week 9)
 
 
 
+
+
+
+
 ## Manchuria/Manshūkoku/Manzhouguo (Week 9)
+
  - Manchuria as industrialization
+
 resource: rich in land, minerals,
+
 wood, power generation
+
  -  1931-32: Using the Mukden
+
 “incident” (1931) as excuse,
+
 Japanese forces take over
+
 Manchuria
+
  -  Establishment of Manshūkoku (Ch.:
+
 Manzhouguo 􀀚􀀓􀀒), a puppet
+
 state putatively under rule of the
+
 last Qing emperor, Puyi
+
  -  1932: Japanese bomb Shanghai,
+
 1933 withdraws from League of
+
 Nations
+
+
+
 ## Atomic bombs and Japan’s surrender (Week 9)
+
 1937 Marco Polo Bridge Incident and Japan’s
+
 invasion of China
+
 • 1937 “Rape of Nanjing”
+
 • Pearl Harbor: Japan attacks on Dec. 7th
+
 • Atomic Bombs: Hiroshima (Aug. 6) &
+
 Nagasaki (Aug. 9th)
+
 • Emperor Hirohito declares Japanese
+
 surrender
+
+
+
 ## Mao Zedong’s “Report on an Investigation of the Hunan Peasant Movement (Week 10)
+
 Peasants are oppressed by: 1) heavy rents, half or more of the crop; 2) high
+
 interest rates, between 36-84 percent a year; 3) heavy local taxes; 4)
+
 exploitation of farm labor; and 5) landowners’ cooperation with warlords
+
 and corrupt officials
+
 • In early 1930s, CCP still dominated by Russian-placed Comintern
+
 operatives, who advocate for socialist revolution amongst the urban
+
 proletariat; Mao Zedong, in contrast, argues that peasants were more likely
+
 and effectively mobilized
 
+
+
 ## Long March, 1934-35 and the establishment of the CCP base at Yan’an (Week 10)
+
 Mao Zedong joins up with the warlord officer Zhu De
+
 in the Jiangxi area to create a base of resistance
+
 • 1931 the Jiangxi Soviet Republic becomes the
+
 ideological center of the CCP
+
 • Meanwhile, Chiang Kai-shek’s Nationalist forces try
+
 to exterminate Communist base; Communist forces
+
 excel at guerrilla warfare
+
 • 1934: Chiang’s forces, with the help of German
+
 military advisers, dislodge the Jiangxi Soviet, forcing
+
 the CCP forces of perhaps 100,000 to retreat
+
 • The legendary Long March: nearly 6000 miles in a
+
 year, averaging 17 miles a day, with only 4000-8000
+
 surviving the entirety of the ordeal
+
 • Arrive in Yan’an 􀀅􀀄 area of Shaanxi Province in
+
 1935
+
 • Yan’an becomes CCP base area until 1949
 
+
+
 ## Second-United Front, 1937-1941 (Week 10)
+
 Chiang Kaishek’s “First internal pacification, then external resistance”
+
 􀀄􀀁􀀇􀀂 policy, 1932-1936
+
 • Dec. of 1936, Zhang Xueliang 􀀆􀀃􀀈, the commander of the
+
 Nationalist forces, instead of carrying out the campaign kidnaps
+
 Chiang Kaishek: Xi’an Incident
+
 • The “Second United Front” 1937-1941
+
 • CCP’s Red Army now called Eight Route Army, represented by Zhou
+
 Enlai in Chongqing
 
+
+
 ## “Rape of Nanjing,” 1937 (Week 10)
+
 • July 8, 1937: Marco Polo Bridge Incident
+
 • Japan quickly occupies
+
+
 
 December, 1937 Nanjing Massacre or “Rape of Nanjing” Nationalist forces retreat far inland to “Free China,” based in Chongqing
 
+
+
 ## Cairo Conference, 1943 (Week 10)
+
 1943: Cairo Conference, in which Allied forces, including Chiang Kai-shek, FDR, Churchill make agreement about what to do with Japanese territory after the war
 
+
+
 ## “Mass Line” governance in the early PRC (Week 10)
+
 “People’s democratic dictatorship”: peasants, workers, and army form of the cornerstone of revolution and new society
+
 • Intellectuals
+
 • Communist Party leads the masses though the “mass line” (qunzhong luxian 􀀅􀀁􀀆􀀄)
+
 • Mao Zedong 􀀁􀀂􀀁 and Standing Committee (Chairman LIU Shaoqi, General ZHU De, Premier ZHOU Enlai)
 
+
 ## Danweis and communes in 1950s PRC (Week 10)
+
 
 In urban areas: Form danwei units
 
 • In countryside: Redistribute land to farmers
+
 
 • Mutual aid teams, then cooperatives
 
@@ -235,10 +340,27 @@ Transformation of industrial sector: from cheap goods to advanced consumer elect
 
 
 ## Liberal Democratic Party (LDP) and “One-and-a-half” form of parliamentary democracy(Week 11)
+Liberal Democratic Party 􀁈􀂐􀂉􀁌􀁬,
+formed in 1955
+
+• LDP dominates elections continuously all the way to the present, including current Prime Minister, Shinzō Abe 􀀝
+􀁶􀁖􀁂
+
+• “One-and-a-half” form of parliamentary democracy
+
+• 1957 sentences of war criminals commuted, and many who had been purged for supporting the war managed to reenter politics
 
 
 
 ## Anpō Treaty and protests, 1960 (Week 11)
+
+1959-1960 revision of the US-Japan security treaty (known in Japan as Anpo jōyaku 􀀝􀂂􀁔􀂍 and
+shortened to Anpo 􀀝􀂂)
+
+ • Not address American military
+bases
+
+• 1960s as a protest decade
 
 
 ## Kim Il-sung, r. 1948-1994 (Week 12)
