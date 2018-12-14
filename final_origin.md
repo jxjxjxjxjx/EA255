@@ -67,15 +67,45 @@ Nagasaki (Aug. 9th)
 • Emperor Hirohito declares Japanese
 surrender
 ## Mao Zedong’s “Report on an Investigation of the Hunan Peasant Movement (Week 10)
-
+Peasants are oppressed by: 1) heavy rents, half or more of the crop; 2) high
+interest rates, between 36-84 percent a year; 3) heavy local taxes; 4)
+exploitation of farm labor; and 5) landowners’ cooperation with warlords
+and corrupt officials
+• In early 1930s, CCP still dominated by Russian-placed Comintern
+operatives, who advocate for socialist revolution amongst the urban
+proletariat; Mao Zedong, in contrast, argues that peasants were more likely
+and effectively mobilized
 
 ## Long March, 1934-35 and the establishment of the CCP base at Yan’an (Week 10)
-
+Mao Zedong joins up with the warlord officer Zhu De
+in the Jiangxi area to create a base of resistance
+• 1931 the Jiangxi Soviet Republic becomes the
+ideological center of the CCP
+• Meanwhile, Chiang Kai-shek’s Nationalist forces try
+to exterminate Communist base; Communist forces
+excel at guerrilla warfare
+• 1934: Chiang’s forces, with the help of German
+military advisers, dislodge the Jiangxi Soviet, forcing
+the CCP forces of perhaps 100,000 to retreat
+• The legendary Long March: nearly 6000 miles in a
+year, averaging 17 miles a day, with only 4000-8000
+surviving the entirety of the ordeal
+• Arrive in Yan’an 􀀅􀀄 area of Shaanxi Province in
+1935
+• Yan’an becomes CCP base area until 1949
 
 ## Second-United Front, 1937-1941 (Week 10)
-
+Chiang Kaishek’s “First internal pacification, then external resistance”
+􀀄􀀁􀀇􀀂 policy, 1932-1936
+• Dec. of 1936, Zhang Xueliang 􀀆􀀃􀀈, the commander of the
+Nationalist forces, instead of carrying out the campaign kidnaps
+Chiang Kaishek: Xi’an Incident
+• The “Second United Front” 1937-1941
+• CCP’s Red Army now called Eight Route Army, represented by Zhou
+Enlai in Chongqing
 
 ## “Rape of Nanjing,” 1937 (Week 10)
+
 
 
 ## Cairo Conference, 1943 (Week 10)
