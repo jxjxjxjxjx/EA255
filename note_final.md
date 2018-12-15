@@ -40,4 +40,16 @@ post 1931: 变成日本侵略满洲国和中国的staging area
 • How might this story challenge or be subversive toward Japanese
 colonialism?*
 
-## 
+## 慰安妇
+system of "comfort stations" 1932年 Shanghai   
+80%的慰安妇是韩国人   
+现在仍在重建这段历史   
+
+# Imerial Japan's integration and imerialization
+马关条约 Treaty of Shimonoseki 割让台湾给日本   
+日本总督统治下 台湾人 二等公民   
+基础设施建设：医学院，铁路，排水等   
+Integration Doka：同化   
+
+
+
