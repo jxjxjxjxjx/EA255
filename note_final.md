@@ -50,6 +50,39 @@ system of "comfort stations" 1932年 Shanghai
 日本总督统治下 台湾人 二等公民   
 基础设施建设：医学院，铁路，排水等   
 Integration Doka：同化   
+1919-1937 台湾成为日本的一部分
+new edu, language initiatives, limited local self-rule
+Imperialization Kominka: 皇民化
+
+# 满洲国
+rich in land，minerals，wood，power generation
+1931-1932 mukden incident为借口（九一八事变） 强占满洲
+建立Manchukuo 满洲国
+由溥仪统治的傀儡政权
+1932 日本bomb上海
+1933 退出League of Nations
+
+# 原子弹
+1937 Marco Polo Bridge Incident，七七事变，卢沟桥事变
+日本侵略中国
+1937 南京大屠杀
+1941年12月7日，日本攻击珍珠港
+八月6日，Hiroshima原子弹，八月9日，Nagasaki原子弹
+
+# 毛泽东 湖南农民运动考察
+1920s active but not central character within CCP
+为国民党设计移动战略 mid 1920s
+1927 Report on an Investigation of the hunan Peasant Movement
+农民oppressed by:
+ - heavy rents: half or more of crop
+ - high interest rates: 36-84%
+ - heavy local taxes
+ - landowners cooperation w/warlods and corrupt officials
+
+1930s早起， CPP被俄国的Comintern operatives dominate 共产国际
+共产国际 advocate 社会主义变革 在urban proletariat 无产阶级
+毛泽东不同 觉得农民更mobilized
+
 
 
 
