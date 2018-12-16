@@ -134,4 +134,9 @@ CCP和KMT达成了coalition government approach。合作 in forming a representi
 # 群众路线
 Mass Line
 
+People's democratic dictorship: 工人 农民 和军队 形成改革建成新社会的基石
+
+通过群众路线带领群众
+
+
 
