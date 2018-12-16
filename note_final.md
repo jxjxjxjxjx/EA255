@@ -138,5 +138,63 @@ People's democratic dictorship: 工人 农民 和军队 形成改革建成新社
 
 通过群众路线带领群众
 
+常务委员会
+毛泽东 刘少奇主席 朱德将军 周恩来总理
 
+## 单位
+1950s
+
+城市地区 form 单位 danwei units
+
+农村：redistribute land to farmers
+
+Mutal aid teams, then cooperatives
+
+# 朝鲜战争 1950 - 1953
+中国和苏维埃联盟 from Russia’s little brother to the true inheritor of socialism and Sino-soviet Split（1960）中苏交恶
+
+恢复清朝国界 收复新疆和西藏 建立自治区
+
+bandung conference 1955 万隆会议 带领第三世界
+
+# 大跃进 1958
+
+1958宣布一个解放生产力的计划 计划在十五年内超越英国的industrial capacity
+
+农民被安排进入公社communes，和生产小组brigades
+
+Backyard steel furnaces 1959-1962
+农作物失败和 3千万人死亡
+
+1959 毛泽东退去国家主席的职务，仍作为CCP主席
+
+# 文化大革命
+毛泽东 对revisionism失望
+
+决定重新掌管CCP 发动文化大革命 Great Revolution to Create a Proletarian Culture
+
+outers of 几个powerful officials 说他们反毛泽东
+
+吸引年轻学生，组成红卫兵 Red Guards, fanning the flames of anti-establishment sentiment
+
+毛泽东畅游长江 1966 七月16日
+
+许多红卫兵到北京参加大型群众集会
+
+打四旧 customes habits culture and thinking
+
+tight control of culture
+
+# 上山下乡 1968- 1976
+
+学校关闭
+
+知识分子发配到农村work with poor people
+
+reform thoughts through labor
+
+# Supreme Commander of the Allied Powers
+驻日盟军司令
+
+1945 8月30日 美国军队 
 
