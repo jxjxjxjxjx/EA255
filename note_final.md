@@ -84,5 +84,54 @@ rich in land，minerals，wood，power generation
 毛泽东不同 觉得农民更mobilized
 
 
+# 长征 Long March
+1934-1935
+毛泽东和warload officer朱德在江西地区创建resistance base
+1931 江西Soviet Republic成为CCP ideological center
+同时 蒋介石国民党尝试消灭共产党的base 共产党擅长guerrilla warfare 游击战    
+1934 蒋介石在德国军队的帮助下 驱逐了江西Soviet 10万人撤退
+
+长征：接近6000 Miles 一年内
+平均一天17 miles 只有4000-8000人活了下来
+1935年到达延安地区
+
+then until 1949 延安都是CCP的base
+
+# 国共内战
+蒋介石 first internal pacification, then external resistance policy 1932-1936
+
+1936 Dec 国民党commander张学良 kidnap 蒋介石
+
+193701941 Second United Front
+
+CCP 红军改名八路军，Eight Route Army
+
+## 南京大屠杀
+1937年7月8日 Marco Polo Bridge Incident
+日本快速占领沿海城市和铁路town
+
+1937年Dec Rape of Nanjing 国民党被迫撤退重庆 为了free China
+
+同时 在东北 共产党利用战争为契机扩张并且发展了base of operations 从1937年的四万人到了1945年的120万日。军队从92，000到了900，000.
+
+## Cairo Conference 1943
+1941 美国参与太平洋和中国
+
+先提供logistical 再提供军事帮助
+
+1943 英国和美国与中国签署新的条约 替代鸦片战争签订的不平等条约
+
+1943 开罗会议 Allied forces 包括 蒋介石 FDR Churchill 达成共识 战后如何处置日本territory
+
+1945 日本战败
+
+CCP和KMT达成了coalition government approach。合作 in forming a representitive assembly。军事合作 和 civil自由
+
+罗斯福派出emissary调解蒋介石和毛泽东 但是蒋介石说服emissary让美国全力支持KMT
+
+但是both准备好了战争
+
+# 群众路线
+Mass Line
 
 
