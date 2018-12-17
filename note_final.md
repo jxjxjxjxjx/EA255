@@ -197,4 +197,210 @@ reform thoughts through labor
 驻日盟军司令
 
 1945 8月30日 美国军队 
+supreme commander of allied powers
 
+## Tokyo War Crimes Trials
+日本去军事化
+
+prosecute 战犯 through 国际军事tribunal for the far east
+
+## class A prisoners
+charged with crimes against peace 
+clas C prisoners: war crimes like mistreatment of prisoners
+Hirohito: absolved of serious reponsibility.
+constituion article 9: The Japanese people forever renouce war as sovereign right of the nation.. land sea, and iar forces will never be maintained
+
+## 日本修改constituion 1946
+重庆确认representative democracy
+
+女性可以vote
+
+Lower House given more power Upper House不再hereditary而是elect
+
+assembly 言论 宗教 自由
+
+重分土地 
+
+压制日本共产党
+
+follow America的带领
+
+## 经济奇迹 economic miracle
+打败财阀 zaibatsu
+
+黑市的繁荣 
+
+朝鲜战争 美国采购
+
+现代中产阶级culture company loyalty
+
+strong经济增长 社会稳定
+
+# LDP 自由民主党
+议会制度的民主
+
+formed in 1955
+LDP dominates 选举直至今天
+ one and a half
+
+1957 罪犯被commuted
+因为支持战争的politics被purged的 重回politics
+
+## 美日安保条约
+1959-1960 修改美日security treaty
+
+没有address美军军事基地
+
+1960 protest decade
+
+# Kim-Il-sung 金日成
+1948-1994
+
+soviet forces和US forces agree一个分裂的Korea
+
+北：communist Korean People‘s army
+
+金日成 leader from 1948-1994
+
+redistribute land 工业国有化 labor federation 公共教育
+
+金日成1972加强power，inherited by 金正日 Kim Jong-Il 1994-2011 and Kim Jong-Un
+
+# Rhee Syngman 李承晚
+1948-1960
+
+1946 婚姻法
+1948 选举李承晚为总统 Republic of Korea 宣布建立
+
+作为应对，北部宣布建立Democratic People's Republic of Korea.
+
+# 主体思想 Juche Policy
+self-reliance and 经济独立
+
+5年计划 优先建立military
+
+农业集体化 Collectivation
+
+Mass mobilization efforts
+
+交替的开放和isolation
+
+# 二二八事件 
+1947年
+
+1945恢复ROC rule 本省人和外省人之间关系紧张
+
+1947年二二八事件 2万台湾人被杀 White Terror
+
+1949 两百万国民党和refugess占领台湾
+
+ROC rebuild 军队 sinicize the island 中国化
+
+美国的附属国 Client state
+
+uncertain designation since 1970 UN和美国 recognize PRC
+
+台湾奇迹 fabrics electronics
+
+1949-1987 台湾 neo-colonial period
+
+# 战后香港
+1898 leased to British for 99 years： New territories
+
+Migration boom from SE China
+
+1949 PRC impact on HK
+政治：governor由伦敦指派
+
+1991年以前没有direct popular elections
+
+1995 ligislative concil wholly elected
+
+## 香港回归
+Post-Mao PRC经历market reforms和开放 HK成为外国在中国投资的门户
+
+1984 agreement 香港归还香港
+
+1997 HK special administrative region
+
+一国两制 50年
+
+经济增长 gurantee current rights但没有further民主化
+
+# Victims History
+战后日本 
+
+反战情绪 但没有探究guilt和责任
+
+# Samurai
+low ranking civil servant
+
+严格的maritial codes
+
+during 江户时期 武士放弃armor 并且act as police
+
+# freeter activisism
+在1990年代social decline之后 “lost decade” 日本政府not forgiving to young population
+
+2000s 早起 reponse to criticism
+
+freeter指那些没有全职工作或者没有工作的人（除去家庭主妇和学生）
+因为故意偏离成为“salary man“的准则
+
+# sakamoto ryuichi和tsunami piano
+坂本 龍一
+1952- 音乐家 作曲家 activist
+
+co-founder of 电子音乐 trio ：Yellow music orchestra in 1978
+
+反对使用atomic power
+
+visited 灾区拯救损毁的乐器
+
+# 邓小平 1980-1993
+rebailitated in 1977
+reappointed to vice-premiership 副总理
+政治局 和其他senor position
+
+描述华国锋，他的政治对手，as 过度Maoist
+描述自己为rationalist和pragmatist 
+
+实践是检验真理的唯一
+
+1980成为head of state 代替华国锋
+
+## 四个现代化1977 1978
+工业农业科技国防
+
+投资88个key universities
+
+open door policy 中美关系normalization
+
+建立经济特区
+
+留学
+
+## 计划生育 1980
+人口超10亿
+减缓人口增长
+
+研究和policy institutes：国家发展委员会 经济委员会 科技委员会 财政部
+
+# 天安门事件
+
+1986 民主运动 学生抗议地方选举的manipulation 宣布没有民主就没法现代化
+
+1987 CCP dismisses了一批 advocate民主和反腐的人
+
+1988-1989 increasing attention on 腐败
+
+1989 4月 胡耀邦趋势 学生聚集支持his legacy
+
+一百万学生聚集在天安门广场 要求去除政府腐败 支持民主
+
+政府delares 婚姻法 但是抗议者和北京市民堵住了军队不让进城
+
+
+军队smash their way to 天安门 6月4日
+
+邓小平宣称这是一场反革命运动 很多关监狱 另一些逃离中国
